@@ -1,1 +1,0 @@
-# lucaslorran22.github.io
